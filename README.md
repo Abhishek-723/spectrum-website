@@ -12,7 +12,7 @@
 - It stated short bio of the team of spectrum.
 - Listed down some questions like-
 1. Why spectrum?
-2.How to join spectrum?
+2.How to join spectrum club?
 3. Where and when to join?
 - You can stay updated by the recent activity of spectrum by following them on Linkedin, Facebook,Github and Instagram.
 - For more details you can contact on the number or mail on the email address mention on the website.
